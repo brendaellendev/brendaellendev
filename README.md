@@ -1,0 +1,4 @@
+- 👋 Oie, me chamo Brenda Ellen
+- 🌱 Sou estudante de Análise e Desenvolvimento de Sistemas
+- 📫 para contato: brendaelem@hotmail.com
+- ✨ Ela/dela
