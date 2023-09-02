@@ -1,4 +1,5 @@
 - 👋 Oie, me chamo Brenda Ellen
-- 🌱 Sou estudante de Análise e Desenvolvimento de Sistemas
+- 👾 Sou estudante de Análise e Desenvolvimento de Sistemas
+- 👩‍💻Futura Desenvolvedora Full Stack
 - 📫 para contato: brendaelem@hotmail.com
 - ✨ Ela/dela
